@@ -1,2 +1,1 @@
-Nama : Nadia Tiara Febriana
-NRP : 05111940000217
+Nadia Tiara Febriana - 05111940000217
